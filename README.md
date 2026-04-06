@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="assets/header.gif" width="100%">
+  <img src="assets/header.jpg" width="100%">
 </p>
 
 <h1 align="center">⋆｡°✩ INTRO ✩°｡⋆</h1>
