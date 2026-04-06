@@ -1,39 +1,42 @@
-<p align="center">
-  <img src="assets/header.jpg" width="100%">
-</p>
-
 <h1 align="center">⋆｡°✩ INTRO ✩°｡⋆</h1>
 
 <p align="center">
-  <i>“...I’m not good with people, so don’t expect much.”</i>
+  <img src="assets/header.jpg" width="50%">
+</p>
+
+<p align="center">
+  <i>“Cordelia | Citrus | Lexi”</i>
 </p>
 
 ---
 
-## Hi
-
-yapping
+Whisper me if you wanna talk, although I might miss it since im not very active on pony town. Also, pretty busyyy... Romania does NOT let you breathe when you have an exam to study for. Feel free to cuddle with my pony, I don't care about pixels on the screen. Mobile version for sp coming soon!!
 
 ---
 
 <p align="center">
-  <img src="assets/idia-gif.gif" width="400">
+  <img src="assets/idia_dorm.webp" width="700">
 </p>
 
 ---
 
 ## BYI
-- gaming / coding  
-- late night hyperfixations  
-- fictional characters > real people  
-- introvert energy  
 
+- I don't exactly hold back when i talk or someone asks for my opinion on something serious.
+- I am very forgetful.
+- currently struggling with mental health & school.
+- I rarely block, I'll only do it if you bother me or send me threats.
+- idgaf about yumeshippers, darkshippers or other similars. Fiction does not affect reality unless the person doing that is very mentally ill.
 ---
 
 ## Currently into
 
-- working on: something small and chaotic  
-- learning: whatever holds my attention  
-- avoiding: social interaction  
+- Twisted Wonderland
+- Genshin Impact
+- My Little Pony
 
 ---
+
+<p align="center">
+  <img src="assets/idia_masquerade.webp" width="700">
+</p>
