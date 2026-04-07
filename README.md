@@ -7,6 +7,9 @@
 <p align="center">
   <i>“Cordelia | Citrus | Lexi”</i>
 </p>
+<p align="center">
+  <i>“15 | 20/1”</i>
+</p>
 
 ---
 
