@@ -34,6 +34,7 @@ all images by @dearestluka on tumblr.
 - I rarely block, I'll only do it if you bother me or send me threats.
 - idgaf about yumeshippers, darkshippers or other similars. Fiction does not affect reality unless the person doing that is very mentally ill, in which case they should seek help.
 - no, i am not a proshipper despite my beliefs above. It is not to my interests.
+
 ---
 
 ## Currently into
