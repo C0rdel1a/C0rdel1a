@@ -37,6 +37,15 @@ all images by @dearestluka on tumblr.
 
 ---
 
+## DNI 
+
+- nonsharing yumes/riakos. I find them disturbing and detached from reality.
+- HB/HH fans.
+- age regressors,
+- zoophiles.
+
+---
+
 ## Currently into
 
 - Twisted Wonderland
