@@ -41,7 +41,7 @@ all images by @dearestluka on tumblr.
 
 - nonsharing yumes/riakos. I find them disturbing and detached from reality.
 - HB/HH fans.
-- age regressors,
+- age regressors. Not to say age regressing isn't a good coping method, I just don't feel comfortable interacting with them.
 - zoophiles.
 
 ---
