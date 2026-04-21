@@ -13,7 +13,9 @@
 
 ---
 
-Whisper me if you wanna talk, although I might miss it since im not very active on pony town. Also, pretty busyyy... Romania does NOT let you breathe when you have a graduation exam to study for. Feel free to cuddle with my pony, I don't care about pixels on the screen.
+Whisper me if you wanna talk, although I might miss it since im mainly offtab on pony town. Also, pretty busyyy... Romania does NOT let you breathe when you have a graduation exam to study for. Feel free to cuddle with my pony, I don't care about pixels on the screen.
+I'm also very friendly despite my intro's more "strict" tone with the constant dots, I just like to keep things short and simple! I do enjoy making friends, albeit i'm a little shy to approach first as i'm unsure if the individual would be comfortable w/ interacting w/ me or not, so I do prefer people send me a small hi or question to get the conversation going.
+Feel free 2 ask for my discord if you'd like to conversate there, I am constantly online there so i will reply quickly (not literally as in always talking there, I just leave the tab open and actually get notis of your friend request/dm unlike pt).
 
 ![](https://komarev.com/ghpvc/?username=c0rdel1a)
 
