@@ -19,6 +19,11 @@ Feel free 2 ask for my discord if you'd like to conversate there, I am constantl
 
 ![](https://komarev.com/ghpvc/?username=c0rdel1a)
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31evx4dts62xfd6dlas2yqhfuwxq&cover_image=true&theme=default&show_offline=true&background_color=ffff00&interchange=false&profanity=false&bar_color=0080c0">
+  </a>
+</p>
 all images by @dearestluka on tumblr.
 ---
 
