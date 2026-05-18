@@ -48,7 +48,7 @@ all images by @dearestluka on tumblr.
 ## DNI 
 
 - nonsharing yumes/riakos and soulbonders. I find them disturbing and detached from reality.
-- -Under 13 and over 25
+- Under 13 and over 25
 - If you can't tell the difference between fiction and reality.
 - If you think being under 18 means immature brain-damaged teens/kids.
 - Age regressors.
