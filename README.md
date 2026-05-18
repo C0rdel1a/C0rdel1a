@@ -40,26 +40,35 @@ all images by @dearestluka on tumblr.
 - I am very forgetful.
 - currently struggling with mental health & school.
 - I rarely block, I'll only do it if you bother me or send me threats.
-- idgaf about yumeshippers, darkshippers or other similars. Fiction does not affect reality unless the person doing that is very mentally ill, in which case they should seek help.
+- idgaf about yumeshippers, darkshippers or other similars. Fiction does not affect reality unless the person doing that is very mentally ill, in which case they should seek help (Specifics in dni)
 - no, i am not a proshipper despite my beliefs above. It is not to my interests.
 
 ---
 
 ## DNI 
 
-- nonsharing yumes/riakos. I find them disturbing and detached from reality.
-- HB/HH fans.
-- age regressors. Not to say age regressing isn't a good coping method, I just don't feel comfortable interacting with them.
-- zoophiles.
+- nonsharing yumes/riakos and soulbonders. I find them disturbing and detached from reality.
+- -Under 13 and over 25
+- If you can't tell the difference between fiction and reality.
+- If you think being under 18 means immature brain-damaged teens/kids.
+- Age regressors.
+- Misandrists and misogynists.
+- I am fine with fujoshis/himedanshis as long as they do not fetishize the relationships and read it purely for entertainment.
+- Emotionally immature/sensitive
+- Zoophiles
+- Objectum people.
+- believe you are a literal fictional character.
+- People that yume/like pokemon romantically/sexually. Block me.
+- Pro-contact.
 
 ---
 
-## Currently into
+## Currently very into
 
 - Twisted Wonderland
 - Genshin Impact
 - My Little Pony
-
+- Witch Hat Atelier
 ---
 
 <p align="center">
